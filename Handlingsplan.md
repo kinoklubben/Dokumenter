@@ -1,8 +1,9 @@
 
 Kinoklubben
 https://www.facebook.com/kinoklubben/  
-E-post: kinoklubben@avd116fagforbundet.no
-  
+E-post: kinoklubben@avd116fagforbundet.no Kinoklubben116@gmail.com
+Facebook:https://www.facebook.com/kinoklubben/  
+
 <img src="Bilder/IMG_20190819_1110223.jpg" width="250" > 
   
 **Dokumenter og avtaleverk**
@@ -40,22 +41,16 @@ L.	Personalhåndbok 2016 ← Må oppdateres
 M.	Ferieleilighet i tyrkia ← Må oppdateres
 N.	Fagforbundets vedtekter
 
-Innledning
-
-Dette dokumentet lages slik at det kan deles med alle som ønsker innsyn. Det brukes både som et oversiktlig oppslagsverk og som dokumentasjon på målrettet arbeid. Kinoklubben har fokus på de ansattes rettigheter og lønnsmessige betingelser, samt sørge for en sunn utvikling av bedriften. Kinoklubben består av: 
+Kinoklubben består av:  
 Per Georg (PG) - Styreleder
-Herman (HS) - Nestleder
+? - Nestleder
 Stein Erik (SEB) - Medlem
 Simon (SF) - Medlem
 PG er også hovedtillitsvalgt for alle Nordisk Film kinoene i norge, hovedkontoret og operatør avdelingen. HS er også plasstillitsvalgt på Colosseum. HR direktør var frem til desember 2019 Katrine Halvorsen. Det er nå en overgangsperiode hvor distriktssjefene Jannik Wahlberg og Andre Jakumeit holder ansvaret, før ny HR sjef tiltrer i februar/mars. 
 
 I § 4 i hovedavtalen står det om viktigheten av utviklingsarbeid og innflytelse for medarbeidere. Kinoklubben er nødvendig for en god arbeidsplass både for de ansatte og bedriften som helhet. Det er enighet om permisjon med lønn for å avholde styremøter så lenge det ikke går ut over driften. Kinosjefene skal få beskjed i god tid før møtet slik at bemanning kan planlegges. Kinoklubben planlegger et styremøte hver 6. uke. etterfulgt av samarbeidsmøter med HR. Det er per nå ingen honorar fra fagforeningen for å sitte i kinoklubb styret
 
-Facebook
-
-https://www.facebook.com/kinoklubben/
-
-Kinoklubben legger ut info om bla.
+Kinoklubben legger ut info på facebook om bla.
 -	Årsmøte
 -	Stemmefrister
 -	Forhandlingsresultater
