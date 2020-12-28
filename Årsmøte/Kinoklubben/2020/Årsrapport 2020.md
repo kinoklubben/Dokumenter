@@ -7,6 +7,10 @@ Kinoklubben innkalte til forhandlinger om arbeidstid
 Konkret forslag er sendt til HR og skal bli vurdert så fort Korona-situasjonen er over  
 Forslaget som foreligger finnes i "Dokumenter --> Arbeidstid --> Konkret forslag"
 
+Kinoklubben har ny epost: Kinoklubben116@gmail.com  
+Kinoklubben har GitHub konto, brukernavn: Kinoklubben116@gmail.com  
+Passord er det samme, spør Herman
+
 Alle dokumenter som er samlet sammen er lagt på GitHub  
 Github er en "version control", slik at alle endringer i dokumenter lagres og kan gjenopprettes  
 GitHub gjør det enklere for Kinoklubbens medlemmer å holde oversikt over dokumentene  
