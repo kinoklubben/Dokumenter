@@ -1,4 +1,8 @@
 
+Herman har jobbet med en sak om feil beregning av sykepenger og vært i møte på hovedkontoret om dette
+
+Kinoklubben har jobbet med diverse person-saker
+
 Kinoklubben innkalte til forhandlinger om arbeidstid   
 Konkret forslag er sendt til HR og skal bli vurdert så fort Korona-situasjonen er over  
 Forslaget som foreligger finnes i "Dokumenter --> Arbeidstid --> Konkret forslag"
