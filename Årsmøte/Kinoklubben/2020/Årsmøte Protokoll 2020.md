@@ -3,18 +3,18 @@ PROTOKOLL FRA ÅRSMØTE I KINOKLUBBEN 2020.
 Til stede: 4 medlemmer.
 
 
-Åm2020/1. Konstituering.
++ Åm2020/1. Konstituering.
 Herman Sefring ble møteleder og Per Georg Andersen ble valgt som møtesekretær.
 
-Åm2020/2. Årsberetning/rapport for 2020
++ Åm2020/2. Årsberetning/rapport for 2020
 
 Herman gikk gjennom årsberetningen. Den ble enstemmig godkjent.(se årsberetning nedenfor)
 
-Åm2020/3.  Handlingsplan for 2020.
++ Åm2020/3.  Handlingsplan for 2020.
 
 Herman leste opp punktene vi skal jobbe videre med.
 
-Åm2020/4.    Valg.
++ Åm2020/4.    Valg.
 
 Valgkomiteen innstilte på at de av styrets medlemmer som er på valg fortsetter i sine verv.
 Per Georg Andersen fortsetter da som HTV i to år. Enstemmig valgt.
