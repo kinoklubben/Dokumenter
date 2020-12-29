@@ -26,5 +26,3 @@ Teams-møte, den 29. desember 2020
 
 Møtereferent: Per Georg Andersen  
 Møteleder: Herman Sefring
-
-Godt Nyttår
