@@ -11,12 +11,12 @@ Herman Sefring ble møteleder og Per Georg Andersen ble valgt som møtesekretær
 Herman gikk gjennom årsberetningen  
 Årsberetning enstemmig godkjent  
 
-+ Åm2020/3.  Handlingsplan for 2020  
++ Åm2020/3. Handlingsplan for 2020  
 
 Per Georg leste opp punktene vi skal jobbe videre med  
 Handlingsplan enstemmig godkjent
 
-+ Åm2020/4.    Valg  
++ Åm2020/4. Valg  
 
 Per Georg er ikke på valg, og fortsetter 'som HTV ett år til  
 Simon Fjordheim ble valgt som medlem i 2 år fram til 2022. Enstemming valgt.
