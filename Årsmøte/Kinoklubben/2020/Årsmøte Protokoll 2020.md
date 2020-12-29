@@ -3,7 +3,7 @@
 Til stede: 4 medlemmer
 
 
-**+ Åm2020/1. Konstituering** 
+**+ Åm2020/1. Konstituering**  
 Herman Sefring ble møteleder og Per Georg Andersen ble valgt som møtesekretær  
 
 + Åm2020/2. Årsberetning/rapport for 2020  
