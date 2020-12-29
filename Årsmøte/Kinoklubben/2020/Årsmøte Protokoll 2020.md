@@ -23,5 +23,5 @@ Per Georg Andersen fortsetter da som HTV i to år. Enstemmig valgt.
 Teams-møte, den 29. desember 2020  
 
 
-Per Georg Andersen                Herman Sefring  
-Møtereferent                      Møteleder  
+Møtereferent: Per Georg Andersen  
+Møteleder: Herman Sefring
