@@ -8,7 +8,7 @@ Konkret forslag er sendt til HR og skal bli vurdert så fort Korona-situasjonen 
 Forslaget som foreligger finnes i "Dokumenter --> Arbeidstid --> Konkret forslag"
 
 Kinoklubben har ny epost: Kinoklubben116@gmail.com  
-Kinoklubben har GitHub konto, brukernavn: Kinoklubben116@gmail.com  
+Kinoklubben har GitHub konto, brukernavn: Kinoklubben116@gmail.com 
 Passord er det samme, spør Herman
 
 Alle dokumenter som er samlet sammen er lagt på GitHub  
@@ -21,7 +21,7 @@ Herman er oppgitt over fagforeningens budsjetteringer og gammeldags organisering
 Herman savner et honorar for å sitte i Kinoklubb styret  
 Herman velger å ikke stille til valg som medlem av kinoklubb styret i 2021  
 
-Herman føler ikke at han får tid til å utføre sine plikter som plasstillitsvalgt, og har ikke lyst til å bruke fritiden sin på dette  
+Herman føler ikke at han får tid til å utføre sine plikter som plasstillitsvalgt på Colosseum, og har ikke lyst til å bruke fritiden sin på dette  
 Herman er delvis fornøyd med en dag fri hver 6 uke, men savner en skriftlig avklaring på "godtgjøring" for plasstillitsvalgte i tariffavtalen eller hovedavtalen
 Herman velger å ikke stille til valg som plasstillitsvalgt på Colosseum i 2021  
 
