@@ -27,3 +27,6 @@ Herman velger å ikke stille til valg som plasstillitsvalgt på Colosseum i 2021
 
 Stein Erik går av med pensjon i mars og stiller derfor ikke til valg som medlem av kinoklubb styret i 2021
 
+Kinoklubben deltok på arbeidsplassbesøk på Odeon og Ringen
+Leder av fagforeningen var med på Odeon
+Nestleder var med på Ringen
