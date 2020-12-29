@@ -1,4 +1,4 @@
-PROTOKOLL FRA ÅRSMØTE I KINOKLUBBEN 2020.
+**PROTOKOLL FRA ÅRSMØTE I KINOKLUBBEN 2020**
                                            29. desember fra kl. 12:00 til 13:00.
 Til stede: 4 medlemmer.
 
