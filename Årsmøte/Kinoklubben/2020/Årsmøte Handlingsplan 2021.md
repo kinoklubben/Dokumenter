@@ -1,5 +1,5 @@
 
-Forslag til handlingsplan for Kinoklubben 2021.
+**Handlingsplan for Kinoklubben 2021**
 
 1. Supplere klubbstyret til minst tre styremedlemmer.
 
