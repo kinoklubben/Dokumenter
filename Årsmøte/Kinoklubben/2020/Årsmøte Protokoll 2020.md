@@ -18,7 +18,6 @@ Handlingsplan enstemmig godkjent
 
 + Åm2020/4.    Valg  
 
-Valgkomiteen innstilte på at de av styrets medlemmer som er på valg fortsetter i sine verv.  
 Per Georg er ikke på valg, og fortsetter 'som HTV ett år til
 Simon Fjordheim ble valgt som medlem i 2 år fram til 2022. Enstemming valgt.
 
