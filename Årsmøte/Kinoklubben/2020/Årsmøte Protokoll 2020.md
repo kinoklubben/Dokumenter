@@ -13,7 +13,8 @@ Herman gikk gjennom årsberetningen
 
 + Åm2020/3.  Handlingsplan for 2020  
 
-Herman leste opp punktene vi skal jobbe videre med  
+Per Georg leste opp punktene vi skal jobbe videre med  
+Handlingsplan enstemmig godkjent
 
 + Åm2020/4.    Valg  
 
